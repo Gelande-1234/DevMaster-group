@@ -1,1 +1,1 @@
-la vie est belle
+la vie est belle il faut en profiter
